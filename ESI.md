@@ -37,7 +37,7 @@ D. Tingkat Madrasah
 
 No. | Nama Perlombaan | Tanggal Pelaksanaan
 1. | AKSIOMA (Ajang Kompetisi Seni dan Olahraga Madrasah) untuk tingkat MI/MTs/MA | Jadwal resmi perlu dikonfirmasi melalui Kementerian Agama atau penyelenggara madrasah terkait
-2. | MYRES (Madrasah Young Researchers Super Camp) untuk tingkat MTs/MA | Jadwal resmi perlu dikonfirmasi melalui Kementerian Agama atau penyelenggara madrasah terkait
+2. | OMI (Olimpiade Madrasah Indonesia) untuk tingkat MTs/MA | Jadwal resmi perlu dikonfirmasi melalui Kementerian Agama atau penyelenggara madrasah terkait
 3. | KSM (Kompetisi Sains Madrasah) untuk tingkat MI/MTs/MA | Jadwal resmi perlu dikonfirmasi melalui Kementerian Agama atau penyelenggara madrasah terkait
 
 
